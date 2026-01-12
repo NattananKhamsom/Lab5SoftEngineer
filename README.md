@@ -1,7 +1,7 @@
 # Lab5SoftEngineer
 งานกลุ่ม soft engineer 
 
-1)ณัฐนันท์ ขำสม 663380382-3
+1)ณัฐนันท์ ขำสม 663380382-3 Github User NattananKhamsom
 
 2)สุจิรา พลอาษา 663380408-1
 
