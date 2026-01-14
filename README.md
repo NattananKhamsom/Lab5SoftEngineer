@@ -9,7 +9,7 @@
 
 4)ธนวินท์ พลค้อ 663380597-2 Github User thanawin597-2
 
-5)ธัญชนก กินรา 663380388-1 
+5)ธัญชนก กินรา 663380388-1 Github User Thanchanokki
 
 6)นภัสกร ชัยเกตุ 663380602-5 Github User tnapatsakorn
 
